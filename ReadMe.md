@@ -1,5 +1,5 @@
 # 💫 About Me:
-Olá, me chamo Leonard,<br><br>🎓Bacharel em Ciências Contábeis e Especialista em Controladoria<br>e Gestão Financeira de Empresas.<br>💼 <br>📖Atualmente estudando programação<br>
+Olá, me chamo Leonard,<br><br>🎓Bacharel em Ciências Contábeis e Especialista em Controladoria<br>e Gestão Financeira de Empresas.<br>💼 <br>📖Estudante de programação<br>
 
 
 ## 🌐 Socials:
