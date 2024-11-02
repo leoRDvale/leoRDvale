@@ -1,5 +1,5 @@
 # 💫 Sobre Mim:
-Olá, me chamo Leonard,<br><br>🎓 Bacharel em Ciências Contábeis e Especialista em Controladoria<br>e Gestão Financeira de Empresas.<br>💼 Trabalho como Assistente Administrativo <br>📖 2° Período de Tecnologia em Sistemas para Internet<br>
+Olá, me chamo Leonard,<br><br>🎓 Bacharel em Ciências Contábeis e Especialista em Controladoria<br>e Gestão Financeira de Empresas.<br>💼 Trabalho como Assistente Administrativo <br>📖 Cursando 2° Período de Tecnologia em Sistemas para Internet - IF Goiano<br>
 
 
 ## 🌐 Onde me encontrar:
